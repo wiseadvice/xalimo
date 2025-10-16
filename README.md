@@ -1,5 +1,5 @@
 # With the Speed of Light into the Age of AI  
-by the help of [wiseadvice](https://www.wiseadvice.eu/)
+by the help of [wiseadvice](https://www.wiseadvice.eu/en#contact)
 
 ## Smart Solutions – Maximum Value through AI
 
